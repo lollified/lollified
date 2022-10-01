@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @lollified
+- 👀 I’m interested in Web Development, Mobile Recovery Rom Porting, VFX Animation.
+- 🌱 I’m currently learning Web Development, C++, Python
+- 💞️ I’m looking to collaborate on Web Development, Mobile Recovery Rom Porting, VFX Animation
+- 📫 You can reach me by searching me on instagram (@lollified_) as well as my
+- 📞 +919491763857
