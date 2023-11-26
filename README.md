@@ -2,5 +2,5 @@
 - 👀 I’m interested in Web Development, Mobile Recovery Rom Porting, VFX Editing and Animation.
 - 🌱 I’m currently learning Web Development, C++, Python
 - 💞️ I’m looking to collaborate on Web Development, Mobile Recovery Rom Porting, VFX Animation
-- 📫 You can reach me by searching me on instagram (@lollified_) as well as my discord: lollified#7852
+- 📫 You can reach me by searching me on instagram (@lollified_) as well as my discord: lollified
 - 📞 IN: +919491763857
